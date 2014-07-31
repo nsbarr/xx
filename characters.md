@@ -20,7 +20,7 @@ Runs the Preserve, totally corrupt. In it for the money. Sold Xiang Xiang's Moth
 
 # Other Zoo animals
 
-TBD. Could be a lot of room for fun here when Mother breaks out of the Zoo.
+TBD. Could be some room for fun here when Mother breaks out of the Zoo.
 
 # Twin Brother
 
