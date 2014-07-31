@@ -28,4 +28,4 @@ TBD. Apparently Xiang Xiang had a twin brother; "wild twin brother" could be an 
 
 # Love interest?
 
-TBD. Maybe there isn't one. 
+TBD. Maybe there isn't one. Have tossed around the idea of a wild female panda, face pressed against the cage of the Preserve, looking in & locking eyes with XX
