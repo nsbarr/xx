@@ -26,5 +26,12 @@ Xiang Xiang's training can't prepare him for the wild. He struggles to forage fo
 Xiang Xiang wakes at dawn to find a female panda tiptoing away from his camp. He recognizes her as the panda whose face he saw at the Preserve. She has been leaving him food.
 
 ##The Reconstruction Test
+Maybe Xiang Xiang teams up with the female panda, sets up a home, gets revenge on the three monkeys who end up becoming pals with them.
 
 ##All is Lost
+This is where I think Xiang Xiang gets attacked by some wild pandas and knocked out.
+
+#Act III
+
+#On the Offensive
+Well this isn't really the offensive so much, but I think when Xiang Xiang comes to 
