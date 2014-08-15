@@ -12,7 +12,7 @@ Xiang Xiang takes a long melancholy walk at dusk. He reaches the high-security s
 
 They talk — for the first time — and Bo tells Xiang Xiang the truth about his Mother. She didn't die during childbirth, as he'd been told. Instead, the Director of the Preserve sold her to the Zoo and locked Bo away.
 
-Bo Xiang urges his son to leave the Preserve.
+Xiang Bo urges his son to leave the Preserve.
 
 ##The Lock
 The Director announces the Reintegration Program, a high-profile project to release a panda bred in captivity back into the wild. To everyone's shock Xiang Xiang volunteers. He enters a period of intense training during which he breaks off all ties with the Preserve. When his training completes he is no longer a child. He leaves the Preserve and enters the Wild alone.
@@ -29,13 +29,14 @@ Xiang Xiang wakes at dawn to find a female panda tiptoing away from his camp. He
 Maybe Xiang Xiang teams up with the female panda, sets up a home, gets revenge on the three monkeys who end up becoming pals with them.
 
 ##All is Lost
-This is where I think Xiang Xiang gets attacked by some wild pandas and knocked out.
+This is where I think Xiang Xiang gets attacked by some wild animals (jaguars?) and knocked out.
 
 #Act III
 
 ##On the Offensive
-Well this isn't really the offensive so much, but I think when Xiang Xiang comes to 
+Well this isn't really the offensive so much, but I think when Xiang Xiang comes to he is surrounded by the wild animals. It turns out this is a group of animals that broke out of the zoo, led by Xiang Xiang's mother. They are on a mission to take revenge on the humans who enslaved them. Xiang Xiang has a long conversation with his mother, who has been transformed by hate into someone that hardly resembles the mother of his dreams. She urges Xiang Xiang to join her on her campaign.
 
 ##Final Struggle
+
 
 ##Denouement
