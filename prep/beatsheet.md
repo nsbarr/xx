@@ -12,7 +12,7 @@ Xiang Xiang asks Paul why the other pandas don't like him. Paul deflects the que
 
 Later that evening Xiang Xiang has a restless sleep. He has a recurring dream, his mother is being pulled away into darkness, into a void, and Xiang Xiang, still a baby, can only mewl and watch in confusion.
 
-Xiang Xiang awakes with a start. It's the middle of the night. He takes a long melancholy walk, and reaches the high-security section of the Reserve. He begins to turn back when he hears a loud, wailing roar echoing off the walls. He pursues the sound and walks past the security guard, who has fallen asleep at his station. The TV is on. A news anchor is reporting on structural problems with the Three Gorges Dam.
+Xiang Xiang awakes with a start. It's the middle of the night. He takes a long melancholy walk, and reaches the high-security section of the Reserve. He begins to turn back when he hears a loud, wailing roar echoing off the walls. He pursues the sound and walks past the security guard, who has fallen asleep at his station. The TV is on. A news anchor is reporting on structural problems with the local Dam.
 
 Xiang Xiang locates the source of the roars — it's his estranged father, Xiang Bo, locked inside a cage. He's surrounded by empty beer cans and cracks another one open with his feet and athletically tosses it into his mouth. Xiang Bo begins verbally abusing his son — calling him a weakling, a pet, a pathetic end to the Xiang family line. 
 
