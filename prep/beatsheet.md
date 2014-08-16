@@ -71,7 +71,7 @@ Xiang Xiang hops into the jeep, as do the 3 monkeys, and they race off, back to 
 
 As they approach they see smoke billowing out of the Reserve and the sounds of gunfire. The fight is well underway. A lion jumps at the throat of a security guard. An elephant stomps down a barracks. Zebras infiltrate and destroy the control center, releasing Xiang Bo and all the other animals in high security from their cages.
 
-Su Lin breaks her way into the baby panda center. An officer tries to block her way from their cages but is knocked out. Su Lin busts open the baby's cages, thinking she has liberated them. The babies, confused and afraid, start mewling. Mei Mei begins to see that Su Lin's mission of liberation is flawed and that Xiang Xiang was right about the humans. Infuriated, Su Lin grabs one of the pandas with her teeth and flings it out of the cage; it flies perilously high and lands... in the arms of Paul.
+Su Lin breaks her way into the baby panda center. Lu Bu tries to block her way from their cages but is knocked out. Su Lin busts open the baby's cages, thinking she has liberated them. The babies, confused and afraid, start mewling. Mei Mei begins to see that Su Lin's mission of liberation is flawed and that Xiang Xiang was right about the humans. Infuriated, Su Lin grabs one of the pandas with her teeth and flings it out of the cage; it flies perilously high and lands... in the arms of Paul.
 
 Paul gently places the baby panda down and it scurries away.
 
