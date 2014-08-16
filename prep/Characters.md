@@ -6,26 +6,30 @@ Our hero, the protagonist. This is his story.
 
 Xiang Xiang's adoptive father and trainer. Knows the secret of Xiang Xiang's family but hides it for his own good.
 
-# Father
+# Xiang Bo
 
-A massive, sulking great panda who lives in a cage in the high-security section of the Preserve. Not allowed to leave without supervision. Totally wild, despises captivity. Does not acknowledge Xiang Xiang as his son. (Xiang Xiang thinks this is because he blames him for his mother's death, actually because seeing his son grow up weak and in captivity breaks his heart) 
+A massive, sulking great panda who lives in a cage in the high-security section of the Preserve. Totally wild, despises captivity. His captors find that throwing him beer cans are the only way to placate him. Does not acknowledge Xiang Xiang as his son.  
 
-# Mother
+# Su Lin
 
-Dead, as far as Xiang Xiang knows. Actually sold to the Zoo after giving birth to Xiang Xiang on the Preserve. Beatiful, mysterious, possibly insane after years of isolation in a cage. (Galadriel/Jenova) 
+Xiang Xiang's mother. Dead, as far as Xiang Xiang knows. Actually sold to the Circus after giving birth to Xiang Xiang on the Reserve. Beatiful, mysterious, possibly insane after years of isolation.
 
 # The Director
 
-Runs the Preserve, totally corrupt. In it for the money. Sold Xiang Xiang's Mother to the Zoo because she would not have been able to bear more children.   
+Runs the Reserve, totally corrupt. Believes that as long as the Reserve meets its goals he can pocket the revenue. He secretly sells Su Lin to the Circus. He also pilots the under-funded and over-rushed Reintegration Program to send a panda bred in captivity into the wild.
 
-# Other Zoo animals
+# Lu Bu
 
-TBD. Could be some room for fun here when Mother breaks out of the Zoo.
+The alpha male of Xiang Xiang's class at the Reserve and his relentless bully. Like Xiang Xiang, he volunteers for the Reintegration Program and is favored to be selected.
 
-# Twin Brother
+# Mei Mei
 
-TBD. Apparently Xiang Xiang had a twin brother; "wild twin brother" could be an interesting storyline; maybe he's at the Zoo with Mother?
+A wild female panda who secretly follows Xiang Xiang and eventually befriends him. Poachers killed her father(?) and she is a human-hater. She hears about Su Lin and is the one to introduce Xiang Xiang, hoping to recruit him on a campaign of revenge and not realizing the relationship they have.
 
-# Love interest?
+# Three Monkeys
 
-TBD. Maybe there isn't one. Have tossed around the idea of a wild female panda, face pressed against the cage of the Preserve, looking in & locking eyes with XX
+Mischieveous wild monkeys that initially torment, and later befriend Xiang Xiang
+
+# Other Circus animals
+
+Lions, zebras, an elephant all subservient to Su Lin. They call her Mother. 
