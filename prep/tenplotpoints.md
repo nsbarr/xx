@@ -29,7 +29,7 @@ Xiang Xiang wakes at dawn to find a female panda (Ehuang) tiptoing away from his
 Maybe Xiang Xiang teams up with Ehuang, sets up a home, gets revenge on the three monkeys who end up becoming pals with them.
 
 ##All is Lost
-This is where I think Xiang Xiang and Ehuang get attacked by some jaguars and knocked out. When he comes to he is surrounded by a variety of wild animals. It turns out this is a group of animals that broke out of the zoo, led by Xiang Xiang's mother. They are on a mission to take revenge on the humans who enslaved them. Xiang Xiang has a long conversation with his mother, who has been transformed by hate into someone that hardly resembles the mother of his dreams. She urges Xiang Xiang to join her on her campaign.
+One morning Xiang Xiang and Ehuang get attacked by some jaguars and knocked out. When he comes to he is surrounded by a variety of wild animals. It turns out this is a group of animals that broke out of the zoo, led by Xiang Xiang's mother. They are on a mission to take revenge on the humans who enslaved them. Xiang Xiang has a long conversation with his mother, who has been transformed by hate into someone that hardly resembles the mother of his dreams. She urges Xiang Xiang to join her on her campaign.
 
 #Act III
 
