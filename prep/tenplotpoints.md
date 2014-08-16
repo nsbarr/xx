@@ -29,12 +29,13 @@ Xiang Xiang wakes at dawn to find a female panda (Ehuang) tiptoing away from his
 Maybe Xiang Xiang teams up with Ehuang, sets up a home, gets revenge on the three monkeys who end up becoming pals with them.
 
 ##All is Lost
-This is where I think Xiang Xiang and Ehuang get attacked by some wild animals (jaguars?) and knocked out.
+This is where I think Xiang Xiang and Ehuang get attacked by some jaguars and knocked out. When he comes to he is surrounded by a variety of wild animals. It turns out this is a group of animals that broke out of the zoo, led by Xiang Xiang's mother. They are on a mission to take revenge on the humans who enslaved them. Xiang Xiang has a long conversation with his mother, who has been transformed by hate into someone that hardly resembles the mother of his dreams. She urges Xiang Xiang to join her on her campaign.
 
 #Act III
 
 ##On the Offensive
-Well this isn't really the offensive so much, but I think when Xiang Xiang comes to he is surrounded by the wild animals. It turns out this is a group of animals that broke out of the zoo, led by Xiang Xiang's mother. They are on a mission to take revenge on the humans who enslaved them. Xiang Xiang has a long conversation with his mother, who has been transformed by hate into someone that hardly resembles the mother of his dreams. She urges Xiang Xiang to join her on her campaign.
+
+
 
 ##Final Struggle
 At the Nature Preserve, Paul has been monitoring Xiang Xiang's activity via GPS and realizes something is wrong when Xiang Xiang gets knocked out. He sets off to track him down. When he arrives, he sees Xiang Xiang fighting one of the wild Zoo pandas. After a standoff between Xiang Xiang & Ehuang / Paul / Mother & the zoo animals, Paul tells Xiang Xiang to run. He does so, Mother attacks, Paul fires his gun, and we see Xiang Xiang & Ehuang run off with a cacophony of sounds behind them.
